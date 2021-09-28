@@ -5,24 +5,12 @@ fanpage for gongyoo aka the love of my life
 <html>
 <head>
 
-<title>
-GONG YOO FAN PAGE
-</title>
-
-<style>
-body {background:#dea5a4;}
-h1 {color:red;}
-h2 {color:red;}
-h3 {color:red;}
-p {color:white;}
-</style>
-
 </head>
 
 <body>
-<h1>
+<h2>
 WHO IS GONG YOO?
-</h1>
+</h2>
 <p>
 gong yoo is a guy from that one kdrama called squid game. he's like pretty famous so he makes a cameo in the first episode.
 he's also known as the love of my life.
