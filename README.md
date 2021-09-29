@@ -1,4 +1,4 @@
-# GONGYOO FANPAGE
+<h1 style="color: pink;">GONGYOO FANPAGE</h1>
 fanpage for gongyoo aka the love of my life
 
 ## WHO IS GONG YOO?
