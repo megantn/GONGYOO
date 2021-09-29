@@ -1,5 +1,5 @@
 # GONGYOO FANPAGE
-<p style="color: pink;">fanpage for gongyoo aka the love of my life<p>
+<p style="color: pink;">fanpage for gongyoo aka the love of my life</p>
 
 ## WHO IS GONG YOO?
 gong yoo is a guy from that one kdrama called squid game. he's like pretty famous so he makes a cameo in the first episode.
