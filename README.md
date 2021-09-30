@@ -17,6 +17,6 @@ He's also known as the love of my life.</p>
 
 ![image](https://user-images.githubusercontent.com/91553555/135301104-aa2a99bb-14bd-43bc-828a-4f30b2770c98.png)
 
-![image](https://user-images.githubusercontent.com/91553555/135487507-8356dc8c-eeac-468b-a518-ad12eac72fbe.png)
+![image](https://user-images.githubusercontent.com/91553555/135487627-508f001d-cd64-476f-a8e3-7dc150df95db.png)
 
-![image](https://user-images.githubusercontent.com/91553555/135487444-f154be0a-2d05-44fa-87b6-2fd531579e77.png)
+![image](https://user-images.githubusercontent.com/91553555/135487650-cb39a564-90f8-4406-9e42-9865c09f48f5.png)
