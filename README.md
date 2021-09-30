@@ -16,3 +16,5 @@ He's also known as the love of my life.</p>
 <p style="color: black;">Gong Yoo plays a korean game called ddakji where there are two folded paper squares and the players take turns throwing one square at the only one on the ground with the goal of knocking the other one up and flipping it over. This matters a ton because gong yoo is just so cracked at the game and he looks so cool when he throws the paper down really hard and absolutely owns his opponents.</p>
 
 ![image](https://user-images.githubusercontent.com/91553555/135301104-aa2a99bb-14bd-43bc-828a-4f30b2770c98.png)
+https://kbizoom.com/wp-content/uploads/2021/09/gong-yoo-the-squid-game-19092021-2.gif
+https://kbizoom.com/wp-content/uploads/2021/09/gong-yoo-the-squid-game-19092021-3.gif
