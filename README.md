@@ -17,6 +17,6 @@ He's also known as the love of my life.</p>
 
 ![image](https://user-images.githubusercontent.com/91553555/135301104-aa2a99bb-14bd-43bc-828a-4f30b2770c98.png)
 
-![image](https://kbizoom.com/wp-content/uploads/2021/09/gong-yoo-the-squid-game-19092021-2.gif)
+![image](https://user-images.githubusercontent.com/91553555/135487507-8356dc8c-eeac-468b-a518-ad12eac72fbe.png)
 
-![image](https://kbizoom.com/wp-content/uploads/2021/09/gong-yoo-the-squid-game-19092021-3.gif)
+![image](https://user-images.githubusercontent.com/91553555/135487444-f154be0a-2d05-44fa-87b6-2fd531579e77.png)
