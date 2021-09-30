@@ -1,5 +1,5 @@
 <h1 style="color: #C9493B;">GONGYOO FANPAGE</h1>
-<p style="color: #D8958D;">fanpage for gongyoo aka the love of my life</p>
+<p style="color: #D8958D;">fanpage for my soulmate</p>
 
 <h2 style="color: #C9493B;">WHO IS GONG YOO?</h2>
 <p style="color: #D8958D;">gong yoo is a guy from that one kdrama called squid game. he's like pretty famous so he makes a cameo in the first episode.
